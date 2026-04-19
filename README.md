@@ -1,1 +1,0 @@
-# FairGig_Softec26
